@@ -5,5 +5,4 @@
  <br> <br> art by <a href="https://saint-end.tumblr.com/post/733077991485243392/ahhh-ive-seen-your-req-post-and-wondering-if"> saint-end </a><br>   <img src="https://i.ibb.co/vw6fzkq/pony-town-single-taken-gamer-trot-blush-blinking-padded-4x.gif" width="150px" align="right">
  
   <img src="https://i.ibb.co/RPMNyv3/pony-town-benny-trot-blinking-padded-4x.gif" width="150px" align="right"> 
- <img src="https://i.ibb.co/GPkHfkT/pony-town-wayen-trot-blinking-padded-4x.gif" width="150px" align="right"> 
-  <img src="https://i.ibb.co/hsZnqM0/pony-town-GRAHAM-trot-blinking-padded-4x.gif" width="150px" align="right"> 
+
